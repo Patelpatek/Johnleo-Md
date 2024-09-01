@@ -1,4 +1,4 @@
- <h1 align="center"> 𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏 𝐁𝐎𝐓 𝐃𝐄𝐕𝐄𝐋𝐎𝐏𝐄𝐃 𝐁𝐘 𝐉𝐎𝐇𝐍𝐋𝐄𝐎😈</h1> 
+ <h1 align="center"> 𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏 𝐁𝐎𝐓 𝐃𝐄𝐕𝐄𝐋𝐎𝐏𝐄𝐃 𝐁𝐘 𝐩𝐚𝐭𝐞𝐥😈</h1> 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
  
 
@@ -7,7 +7,7 @@
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
-<p align="center"> 👉𝐉𝐎𝐇𝐍𝐋𝐄𝐎-𝐌𝐃👈 𝐀 𝐒𝐢𝐦𝐩𝐥𝐞 𝐖𝐡𝐚𝐭𝐬𝐀𝐩𝐩 𝐮𝐬𝐞𝐫 𝐁𝐎𝐓, 𝐂𝐫𝐞𝐚𝐭𝐞𝐝 𝐛𝐲 𝐉𝐎𝐇𝐍𝐋𝐄𝐎😈
+<p align="center"> 👉𝐉𝐎𝐇𝐍𝐋𝐄𝐎-𝐌𝐃👈 𝐀 𝐒𝐢𝐦𝐩𝐥𝐞 𝐖𝐡𝐚𝐭𝐬𝐀𝐩𝐩 𝐮𝐬𝐞𝐫 𝐁𝐎𝐓, 𝐂𝐫𝐞𝐚𝐭𝐞𝐝 𝐛𝐲 𝐩𝐚𝐭𝐞𝐥😈
   
 <img src="https://telegra.ph/file/89d46d55790a72169e3db.jpg" width="700" height="600"/>
 <p align="cente">
